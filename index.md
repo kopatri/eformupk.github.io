@@ -11,3 +11,4 @@ the evil plans of the mad scientist–supervillain duo Dr. Drakken and his sidek
 * combats Sheego and Dr. Drakken
 * secretly likes Ron Stoppable
 > A naked mole rat? Ron, ever think about getting a normal pet?
+Format: ![Kim Possible Cover](https://upload.wikimedia.org/wikipedia/en/0/01/Kim_Possible_%28promo_art%29.jpg)
