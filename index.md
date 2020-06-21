@@ -4,3 +4,9 @@ The title character is a teenage girl tasked with fighting crime on a regular ba
 with adolescence. Kim is aided by her clumsy best friend and eventual love interest, Ron Stoppable, his pet naked mole rat Rufus, 
 and ten year-old computer genius Wade. Known collectively as Team Possible, Kim and Ron's missions primarily require them to thwart 
 the evil plans of the mad scientist–supervillain duo Dr. Drakken and his sidekick Shego, though they encounter other enemies as well.
+## Kim Possible Traits
+* honest
+* direct
+* does Cheerleading
+* combats Sheego and Dr. Drakken
+* secretly likes Ron Stoppable
