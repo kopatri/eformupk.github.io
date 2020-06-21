@@ -10,3 +10,4 @@ the evil plans of the mad scientist–supervillain duo Dr. Drakken and his sidek
 * does Cheerleading
 * combats Sheego and Dr. Drakken
 * secretly likes Ron Stoppable
+> A naked mole rat? Ron, ever think about getting a normal pet?
